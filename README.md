@@ -1,1 +1,3 @@
-# BHC-Armor-PMMP
+# BRUTAL HARDCORE ARMOR
+
+Inspiration from BRUTAL HARDCORE
